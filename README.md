@@ -1,6 +1,6 @@
 # Perlawanan Penjajahan 1945
 
-Banner ini memiliki tema yang sangat kental dengan perlawanan penjajahan 1945 dan komunitas cuy universe, dengan menggunakan elemen desain bergaya retro dan dengan gaya background menyerupai pola payung yang ada pada salah satu foto populer Bung Tomo, sekaligus menggunakan font Montserrat Alternates Bold-Italic yang berkesan modern nan nyentrik.
+Banner ini memiliki vibe yang sangat kental dengan tema perlawanan penjajahan 1945 dan komunitas Cuy Universe itu sendiri. Dengan menggunakan elemen desain bergaya retro dan dengan gaya background menyerupai pola payung yang ada pada salah satu foto populer Bung Tomo sekaligus menggunakan font Montserrat Alternates Bold-Italic yang berkesan modern nan nyentrik.
 
 ## Pengumpulan Lomba CuyUniverse 
 
